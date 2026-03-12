@@ -5,6 +5,8 @@
 **Institutions:** West African Primate Conservation Action (WAPCA), Ghana; Universitat Oberta de Catalunya, Spain; Parc Zoològic de Barcelona, Spain
 
 Full paper included as `APVol191Kavlaketal.pdf`.
+<img width="1026" height="855" alt="image" src="https://github.com/user-attachments/assets/19acf784-8e09-42fc-9762-6f9fc5bb08d3" />
+
 
 ---
 
